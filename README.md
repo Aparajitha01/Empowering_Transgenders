@@ -1,2 +1,2 @@
 # Empowering_Transgenders
-A platform that brings about digital activism in the world
+A platform that brings about digital activism in the world. We developed a website named*"EMPOWERING TRANSGENDERS"* It contains the lists of all those websites which are creating opportunities for them. We also showcased trans people owned business that brings about a ray of hope in the trans community.We also have added the story of successful transgender people who have achieved some key milestones in their field. This website showcased"What are the possibilities,what are the opportunities they have,What percent of job opportunities available for them in other countries and other information".These details will give awareness about chances available for them to shine in their life.
